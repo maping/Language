@@ -1,5 +1,10 @@
 # 粤语
 
+## 粤语教程
+[超级棒的粤语教程](https://www.bilibili.com/video/BV12b411L7NS/)
+
+[粤语会话三月通](https://www.bilibili.com/video/BV1px411U7HU/)
+
 ## 粤语常用语 
 【粤语教学】100句粤语最常用的句子，不仅会教怎么说，还会解释粤语单字的意思
 - [第一集](https://www.bilibili.com/video/BV1dJ411V7T9/)
